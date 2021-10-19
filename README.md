@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Mikael
+- 👀 Programer and Gamer
+- 🌱 Studying in 42 Lisbon
+- 💞️ I’m looking to collaborate on 42 projects
+- 📫 reach me in mikael.bb@hotmail.com
