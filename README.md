@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Mikael
 - 👀 Programer
 - 🌱 Studying in 42 Lisbon
-- 📫 reach me in mikael.bb@hotmail.com
+- 📫 reach me in mikael.bb2002@gmail.com
